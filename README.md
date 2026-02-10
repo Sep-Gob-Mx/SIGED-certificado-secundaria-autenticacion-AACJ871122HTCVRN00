@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AACJ871122HTCVRN00
+AACJ871122HTCVRN00
